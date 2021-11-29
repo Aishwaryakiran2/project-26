@@ -1,0 +1,1 @@
+spinach,panner(cottage cheese),salt,green chillies,garlic,ginger,onions,turmeric powder,chili powder,cumin seeds,MAGGI Masala . 
